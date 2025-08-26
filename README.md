@@ -18,7 +18,7 @@ We have to understand this. And even if you don’t understand, I don’t care.<
 👉 I will release the best AGI and ASI for free so any researcher, developer, or even someone who can’t afford expensive AI agents can still use them.<br>
 He isn’t going to change humanity.<br>
 But, I will. 100%, Yeah.<br>
-
+> I love mark Zuckerberg <br>
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/https://www.instagram.com/storyof.jheimer/) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@https://www.youtube.com/@unplugged-officially) 
