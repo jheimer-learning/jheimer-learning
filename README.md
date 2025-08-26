@@ -1,6 +1,6 @@
 ### Hi, I'm Jheimer!
 
->MY AIM IS: BUILD BEST LLMs and AGI/ASI.<br>
+>MY AIM IS: BUILD BEST LLM Model and AGI/ASI.<br>
 
 A tech enthusiast who loves learning and building in AI/ML, low-level programming, and understanding how things truly work from computers, AI models, websites, OS, kernels, rockets, jet engines, hardware, and even nuclear science, physics and mathmatics.
 I want to learn everything I possibly can.
