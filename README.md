@@ -1,13 +1,13 @@
 ### Hi, I'm Jheimer!
 
->MY AIM IS: BUILD BEST LLM Model and AGI/ASI.<br>
+>MY AIM IS: BUILD BEST Foundation LLM Model and AGI/ASI.<br>
 
 A tech enthusiast who loves learning and building in AI/ML, low-level programming, and understanding how things truly work from computers, AI models, websites, OS, kernels, rockets, jet engines, hardware, and even nuclear science, physics and mathmatics.
 I want to learn everything I possibly can.
 
 > As humans and youth, our main priority should be helping humanity achieve greatness in intelligence, technology, and even becoming multi-planetary.
 
-> My Competitor is Elon Musk:
+> My Inspiration and Competitor is Elon Musk:
 
 Because these days his focus is profit and control over industries.<br>
 He said: “OpenAI started as an open-source organization, but when they know that AI is a big thing, they changed the whole structure and turned OpenAI into a closed-source company. That’s why I left OpenAI.”<br>
