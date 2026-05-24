@@ -7,7 +7,7 @@ I'll learn everything...
 
 > As humans and youth, our main priority should be helping humanity achieve greatness in intelligence, technology, and even becoming multi-planetary.
 
-> My Inspiration and Competitor is Elon Musk in my different ideology:
+> My Inspiration and Competitor is Elon Musk in many different ways-> I love him:
 
 Because these days his focus is profit and control over industries.<br>
 He said: “OpenAI started as an open-source organization, but when they know that AI is a big thing, they changed the whole structure and turned OpenAI into a closed-source company. That’s why I left OpenAI.”<br>
