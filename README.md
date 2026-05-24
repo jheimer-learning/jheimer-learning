@@ -16,8 +16,8 @@ And then… he started an AI company GrokAI, but it’s also closed source. Whic
 Meanwhile, Mark Zuckerberg released LLaMA 3 and 3.1 as open-source models. Elon always says: “Mark isn’t a good guy” but Mark actually did something that every AI learner, developer, and researcher needed: open-source models to fine-tune and train.<br>
 So Elon Musk is the biggest hypocrite I’ve ever seen. These days, he’s just hunting industries for profit, not for humanity.<br>
 We have to understand this. And even if you don’t understand, I don’t care.<br>
-👉 He is my biggest and only competitor.<br>
-👉 I will release the best AGI and ASI for free so any researcher, developer, or even someone who can’t afford expensive AI agents can still use them.<br>
+<br>
+<br>
 He isn’t going to change humanity.<br>
 But, I will. 100%, Yeah.<br>
 > I love mark Zuckerberg for his Llama open source Foundation model, even under LOC, That's why I love this guy. I love to work with him in the future releted AGI/ASI<br>
