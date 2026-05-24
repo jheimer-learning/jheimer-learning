@@ -1,9 +1,9 @@
-### Hi, I'm Jheimer!
+### Hi, I'm Jheimer! -> A Young Man, who is very excited about upcoming 20years of his life and humans hardest and greatest transition to new era of humans existant and living... 
 
->MY AIM IS: BUILD BEST Foundation LLM Model and AGI/ASI.<br>
+>MY AIM IS: Be the part of best Foundation LLM Model and AGI/ASI, humanoids and Neural based ai/deep Tech...<br>
 
-A tech enthusiast who loves learning and building in AI/ML, low-level programming, and understanding how things truly work from computers, AI models, websites, OS, kernels, rockets, jet engines, hardware, and even nuclear science, physics and mathmatics.
-I want to learn everything I possibly can.
+A tech enthusiast who loves learning and building in AI/ML, low-level programming, and understanding how things truly work from computers, AI models, OS, kernels, rockets, jet engines, hardware, and even nuclear science, physics and mathmatics.
+I'll learn everything...
 
 > As humans and youth, our main priority should be helping humanity achieve greatness in intelligence, technology, and even becoming multi-planetary.
 
